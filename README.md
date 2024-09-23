@@ -40,7 +40,7 @@
 
 ###
 
-<img align="right" height="164" src="https://gifdb.com/gif/luffy-spinning-straw-hat-7t9ab5hrcqtv0ffg.html"  />
+<img align="right" height="164" src="https://th.bing.com/th/id/OIP.2EowGhTTkqmDqvTx3hrZfwHaDt?w=350&h=175&c=7&r=0&o=5&pid=1.7"  />
 
 ###
 
